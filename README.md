@@ -1,3 +1,3 @@
 # teste-emby-rave
 
-http://155.248.231.10:8096/emby/web/index.html#!/home
+https://deluxetry.com.co/embed/?M2RoanIwTHRMVTA1RWZJaHU1Ry9ZT29IVTBqWXhoUU9qWDZxWjQyZU1iYUI5RGlqbVgwZkFLMHJqems4YUZaREhuME9jMm9SZm8wZnVQU1Y2cmZ1S3c9PTo63sV31c1vL9GUzQn%2FJ6jMpA%3D%3D
